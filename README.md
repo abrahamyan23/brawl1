@@ -1,4 +1,4 @@
 # brawl1
 New ideas about Brawl
 
-my name is Erik i like games beacouse its so fun. my favourite game is brawl stars its beacouse my file's name is brawl1
+my name is Erik i like games becouse its so fun.my favourite game is brawl stars its becouse my file's name is brawl1
